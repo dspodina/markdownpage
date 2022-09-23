@@ -9,7 +9,7 @@
  
  ## The one with the surprising skills
 - My drug is condensed milk. I can eat the whole jar for 1 time
-- I'm not afraid to start a conversation with strangers
+- Talk to strangers
 - If I want to sleep, I don't care where
 
 ## The one with the favorite things in this universe
