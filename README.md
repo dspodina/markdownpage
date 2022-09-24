@@ -10,7 +10,7 @@
  ## The one with the surprising skills
 - My drug is condensed milk. I can eat the whole jar for 1 time
 - Talk to strangers
-- If I want to sleep, I don't care where
+- If I want to sleep, I don't care where: plane, bus etc.
 
 ## The one with the favorite things in this universe
 - Plane landing
