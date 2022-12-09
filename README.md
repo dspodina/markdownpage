@@ -13,9 +13,9 @@
 - If I want to sleep, I don't care where: plane, bus etc.
 
 ## The one with the favorite things in this universe
-- Plane landing
+- The plane landing
 - The mountains and oceans
-- Asian food
+- The asian food
 
 ## The one with the objectives as a developer during Becode 
 - Practice
